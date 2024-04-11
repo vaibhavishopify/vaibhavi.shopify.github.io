@@ -1,2 +1,1 @@
 # Vaibhavi-Portfolio
-Vaibhavi Portfolio
